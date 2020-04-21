@@ -13,4 +13,5 @@ bergabunglah disalahsatu komunitas bot.OK 😂
 ## WROKS 100 %
 #DPK BOTS
 #ARIFISTIFIK 
-# THANKS TO ALL MASTAH
+# TERIMA KASIH KEPADA SEMUA MASTAH
+KhususuntukmemberGS2

@@ -1,0 +1,1 @@
+Khusus member GS2

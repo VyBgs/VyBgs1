@@ -1,2 +1,0 @@
-# VyBgs1
-Template
